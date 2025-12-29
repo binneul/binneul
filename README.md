@@ -5,5 +5,5 @@
 </p>
 
 <p align="center">
-<img width="523" height="304" alt="Zrzut ekranu 2025-12-26 124740" src="https://github.com/user-attachments/assets/a66fb21f-e018-4c52-8822-e20057f85544" />
+<img width="523" height="250" alt="hi" src="https://files.catbox.moe/aclzxv.png" />
 </p>
