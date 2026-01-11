@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-<img width="300" height="210" alt="hudcon" src="https://files.catbox.moe/751xj4.gif" />
+<img width="300" height="210" alt="hudcon" src="https://files.catbox.moe/9lvdwn.gif" />
 </p>
 
 <div align="center">
