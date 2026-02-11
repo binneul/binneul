@@ -11,7 +11,5 @@
 <div align="center">
   
   ![](https://komarev.com/ghpvc/?username=binneul&color=grey&label=❀)⠀ ⠀feminify⠀ #BIGHUD ⠀with⠀ me
-  
-<img width="200" height="256" alt="obraz_2026-02-06_235623435-ezgif com-resize" src="https://github.com/user-attachments/assets/91332491-1448-4002-840e-9450148d7712" />
 
 </div>
