@@ -5,11 +5,11 @@
 </p>
 
 <p align="center">
-<img width="300" height="210" alt="hudcon" src="https://files.catbox.moe/9lvdwn.gif" />
+<img width="300" height="283" alt="hudcon" src="https://file.garden/ZgwdTG-uajjHAH58/aleniszowe-ezgif.com-resize.gif" />
 </p>
 
 <div align="center">
   
-  ![](https://komarev.com/ghpvc/?username=binneul&color=grey&label=❀)⠀ ⠀feminify⠀ #BIGHUD ⠀with⠀ me
+  ![](https://komarev.com/ghpvc/?username=binneul&color=grey&label=❀)⠀ ⠀ ⠀⠀121224⠀⠀ ⠀ ⠀(≖⩊≖)
 
 </div>
