@@ -6,7 +6,7 @@
 </p>
 
 <p align="center">
-<img width="300" height="283" alt="hudcon" src="https://file.garden/ZgwdTG-uajjHAH58/aleniszowe-ezgif.com-resize.gif" />
+<img width="300" height="283" alt="hudcon" src="https://i.pinimg.com/originals/4b/2d/f4/4b2df41df7dd1d95ef7d011266967324.gif" />
 </p>
 
 <div align="center">
