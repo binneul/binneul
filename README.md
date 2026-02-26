@@ -11,6 +11,6 @@
 
 <div align="center">
   
-  ![](https://komarev.com/ghpvc/?username=binneul&color=grey&label=❀)⠀ ⠀⠀⠀121224⠀⠀ <a href ="https://injury.atabook.org">ata<a/>⠀ ⠀⠀⠀(≖⩊≖)
+  ![](https://komarev.com/ghpvc/?username=binneul&color=grey&label=❀) 　<a href ="https://injury.atabook.org">新book<a/> 　<a href ="https://rentry.co/pyoyo">rentry<a/> 　<a href ="https://hudcon.crd.co/">crd<a/> 　(:3 っ)∋
 
 </div>
