@@ -2,4 +2,4 @@
 
 <img width="300" height="283" alt="hi" src="https://i.pinimg.com/736x/62/ce/f0/62cef00e709730116f7f4717bc1c9de5.jpg" /> 
 
-　 **<a href ="https://injury.atabook.org">新BOOK<a/> 　 ( ᵔᴥᵔ ) 　 <a href="https://rentry.co/pyoyo">INFO</a> 　 <a href="https://pronouns.cc/@hoodie">PRONOUNS</a>**
+　  **<a href ="https://injury.atabook.org">新BOOK<a/> 　 ( ᵔᴥᵔ ) 　 <a href="https://rentry.co/pyoyo">INFO</a> 　 <a href="https://pronouns.cc/@hoodie">PRONOUNS</a>**
