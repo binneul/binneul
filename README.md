@@ -2,4 +2,4 @@
 
 <img width="320" alt="hi" src="https://64.media.tumblr.com/9efdec10ebf2826e0e71701a896742e0/8c34dbd1424cc21b-22/s540x810/ea474c92786f6e0f27b51dbe400d73d12d66c703.gifv" /> 
 
-𓈒　✿　 **<a href ="https://injury.atabook.org">新BOOK</a>　<a href="https://rentry.co/pyoyo">MY INFO</a>　<a href="https://rentry.co/charitylinks">CHARITY LINKS</a>** 　ʾʿ
+**<a href ="https://injury.atabook.org">新BOOK</a>　 (*-`ω´- )人　 <a href="https://rentry.co/pyoyo">MY RENTRY</a>　 <a href="h.">WIP🏗️👷‍♂️</a>**
