@@ -6,6 +6,6 @@
 
 **<a href="https://github.com/autotomize">ZACHARY🦫</a>　 (*-`ω´- )人　 <a href="https://rentry.co/pyoyo">RENTRY</a>　 <a href ="https://injury.atabook.org">新BOOK</a>**
 
+<img width="320" alt="hi" src="https://i.pinimg.com/1200x/68/1f/f6/681ff693c3d5ce6334e568f89fa2c59f.jpg" /> <img width="320" alt="hi" src="https://i.pinimg.com/736x/25/37/fb/2537fb279e3b4360ef61ae6b7becd9eb.jpg" /> 
 
-
-
+<img width="320" alt="hi" src="https://i.pinimg.com/736x/83/b9/e1/83b9e1e938b32090a92f8cd5755cda4c.jpg" /> <img width="320" alt="hi" src="https://i.pinimg.com/736x/1e/e1/3c/1ee13c0e060a6d04a3a941b58ada5230.jpg" /> 
