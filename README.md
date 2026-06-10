@@ -1,5 +1,5 @@
 <p align="center">
-  <b><a href ="">MY RENTRY</a>⠀<a href ="https://injury.atabook.org">ATABOOK</a>⠀<a href ="https://listography.com/dinof">LISTOGRAPHY</a>⠀◂◂</b><br> 
+  <b><a href ="">MY RENTRY</a>⠀⠀<a href ="https://injury.atabook.org">ATABOOK</a>⠀⠀<a href ="https://listography.com/dinof">LISTOGRAPHY</a>⠀◂◂</b><br> 
 </p>
 
 <p align="center">
@@ -9,5 +9,5 @@
 </p>
 
 <p align="center">
-  <b>▸▸ PITTLINGS ⇉ <a href ="https://github.com/starcrissy">CRIS</a>⠀<a href="https://github.com/kouscat">NICO</a>⠀<a href="https://github.com/aphnic">ISAAC</a>⠀<a href="https://github.com/autotomize">ZACH</a></b><br> 
+  <b>▸▸⠀PITTLINGS ⇉⠀<a href ="https://github.com/starcrissy">CRIS</a>⠀<a href="https://github.com/kouscat">NICO</a>⠀<a href="https://github.com/aphnic">ISAAC</a>⠀<a href="https://github.com/autotomize">ZACH</a></b><br> 
 </p>
