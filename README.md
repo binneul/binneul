@@ -13,6 +13,12 @@ i'm pathetically scared of oomfchella happening this year and this is not funny 
 
 </p>
 
+<p align="center">
+
+<img width="320" alt="hi" src="https://files.catbox.moe/j0cwnb.png" /> 
+
+</p>
+
 
 <p align="center">
 
