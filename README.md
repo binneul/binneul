@@ -4,13 +4,6 @@
 
 </p>
 
-
-<p align="center">
-
-<img width="320" alt="hi" src="https://files.catbox.moe/j7k4md.png" /> 
-
-</p>
-
 <p align="center">
 
 <img width="320" alt="hi" src="https://files.catbox.moe/j0cwnb.png" /> 
