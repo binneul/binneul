@@ -4,6 +4,7 @@
 
 </p>
 
+i fucking hate tumblr and pop base 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀
