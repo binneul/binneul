@@ -4,7 +4,7 @@
 
 </p>
 
-i fucking hate tumblr and pop base 
+i fucking hate tumblr and pop base, please get the fuck out of my house
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀
